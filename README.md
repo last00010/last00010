@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hi, I'am Dmitry:
 ☠️ Lead 3d Artist in Lunas<br>👨‍🚀 Researcher of the future <br>🤝 Found me Instagram
 
 
